@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Himanshu
 - 👀 I’m interested in website and softwares development.
-- 🌱 I’m currently appearing in Mca in CU.
+- 🌱 I’m currently pursuing Mca in CU.
 - 💞️ I’m looking to collaborate on webs development as well as softare engineering.
 - 📫 himansu6453@gmail.com is my official email to get in touch with me.
 
